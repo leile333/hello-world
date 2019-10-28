@@ -1,2 +1,3 @@
 # hello-world
 Conocimiento
+hola, soy nuevo en esto  y  estoy   haciendo  todo   lo posible para  aprender.  les agradezco   su apoyo...                                                               estoy haciendo algunos  cambios  para  paracticar...   
